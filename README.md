@@ -2,4 +2,4 @@
 
 hi,
 i'm new here,
-and i wanna do something interestings.
+and i wanna do something interesting.
